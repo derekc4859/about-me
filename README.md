@@ -9,5 +9,11 @@
 1. Chocolate Ice Cream  
 2. French Fries  
 3. Cake  
+#####_Favorite Things to do_:  
+* Play video games  
+* Explore New York  
+ * **Sometimes prefer using my bike when going to places**  
+* Eat food  
+* Spend time with my family  
 **[My portfolio](https://sites.google.com/a/hstat.org/derekc4859sep11/home)**
 
