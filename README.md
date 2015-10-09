@@ -8,7 +8,8 @@
 #####_Favorite foods_: 
 1. Chocolate Ice Cream  
 2. French Fries  
-3. Cake     
+3. Cake  
+
 #####_Favorite Things to do_:   
 * Play video games  
 * Explore New York  
